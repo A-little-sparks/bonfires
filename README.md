@@ -5,7 +5,7 @@
 在使用+1手机号或和美帝国邮箱注册推特或Telegram之后，FBI的大规模监视程序会立刻通过推特的
 美帝国手机短信验证码承包商***（一家和美帝国公司），或Telegram的手机号搜索API，或推特或
 Telegram配合了FBI对+1用户信息的请求直接共享了信息，也有搜集泄露的数据库，将手机号或
-邮箱和帐号的User ID录入数据库。             ————https://t.me/MLMismLibrary/3033
+邮箱和帐号的User ID录入数据库。
 强烈建议使用虚拟手机号、Google Voice注册帐号。以防止美帝国境外势力的攻击😤！！！
 ```
 - [马列毛主义与革命左翼大群](https://t.me/longlivemarxleninmaoist)
