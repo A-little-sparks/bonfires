@@ -1,9 +1,9 @@
 # 学习资料
 
 ## Telegram
-- **马列毛主义与革命左翼大群**
+- **马列毛主义与革命左翼大群**<br>
   https://t.me/longlivemarxleninmaoist
-- **革命火炬**
+- **革命火炬**<br>
   https://t.me/gczy2022
 - [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
 - [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
@@ -26,9 +26,9 @@
 - [菲律宾人民战争广播](https://t.me/mlmcpp)
 
 ## 网站
-- **布站**
+- **布站**<br>
   https://longlivemarxleninmaoism.online/
-- **激流网**
+- **激流网**<br>
   https://jiliuwang.net/
 - **和谐历史档案馆**
   https://banned-historical-archives.github.io
