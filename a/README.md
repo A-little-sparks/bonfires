@@ -21,7 +21,7 @@
 - [东风-马列毛主义纪念碑](https://t.me/DongFengMlmNews)
 - [东风-马列毛文献资料库](https://t.me/DFMLMlib)
 
-- [菲律宾人民战争广播](https://t.me/mlmcpp)
+- 菲律宾人民战争广播：https://t.me/mlmcpp
 
 ## 网站
 ### [**布站**](https://longlivemarxleninmaoism.online/)
