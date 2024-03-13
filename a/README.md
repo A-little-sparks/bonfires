@@ -1,8 +1,8 @@
 # 学习资料
 
 ## Telegram
-### **马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)
-[马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
+### [**马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)  
+[马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)  
 [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
 [马列毛主义与革命左翼 国际共运](https://t.me/statelesscommunism)
 [马列毛主义与革命左翼艺术馆](https://t.me/leftart)
@@ -24,7 +24,7 @@
 [菲律宾人民战争广播](https://t.me/mlmcpp)
 
 ## 网站
-[**布站**](https://longlivemarxleninmaoism.online/)
+###[**布站**](https://longlivemarxleninmaoism.online/)
 [激流网](https://jiliuwang.net/)
 [和谐历史档案馆](https://banned-historical-archives.github.io)
 [苏联主义网](www.cccpism.com)
