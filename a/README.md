@@ -9,7 +9,7 @@
 [马列毛主义与革命左翼 每日简讯](https://t.me/voiceofmaoist)<br>
 [仓储中心](https://t.me/MLMismLibrary)<br>
 
-### **革命火炬**](https://t.me/gczy2022)<br>
+### [**革命火炬**](https://t.me/gczy2022)<br>
 [革命火炬之劳工通讯](https://t.me/gczy2023worker)<br>
 [革命火炬之时事及社评](https://t.me/gczy2023news)<br>
 [革命火炬之理论历史文章](https://t.me/gczy2023history)<br>
@@ -24,7 +24,7 @@
 [菲律宾人民战争广播](https://t.me/mlmcpp)<br>
 
 ## 网站
-###[**布站**](https://longlivemarxleninmaoism.online/)<br>
+### [**布站**](https://longlivemarxleninmaoism.online/)<br>
 [激流网](https://jiliuwang.net/)<br>
 [和谐历史档案馆](https://banned-historical-archives.github.io)<br>
 [苏联主义网](www.cccpism.com)<br>
