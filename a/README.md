@@ -1,15 +1,15 @@
 # 学习资料
 
 ## Telegram
--### [**马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)
-- [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
-- [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
-- [马列毛主义与革命左翼 国际共运](https://t.me/statelesscommunism)
-- [马列毛主义与革命左翼艺术馆](https://t.me/leftart)
-- [马列毛主义与革命左翼 每日简讯](https://t.me/voiceofmaoist)
-- [仓储中心](https://t.me/MLMismLibrary)
+###[**马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)
+[马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
+[马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
+[马列毛主义与革命左翼 国际共运](https://t.me/statelesscommunism)
+[马列毛主义与革命左翼艺术馆](https://t.me/leftart)
+[马列毛主义与革命左翼 每日简讯](https://t.me/voiceofmaoist)
+[仓储中心](https://t.me/MLMismLibrary)
 
--### [**革命火炬**](https://t.me/gczy2022)
+### [**革命火炬**](https://t.me/gczy2022)
 - [革命火炬之劳工通讯](https://t.me/gczy2023worker)
 - [革命火炬之时事及社评](https://t.me/gczy2023news)
 - [革命火炬之理论历史文章](https://t.me/gczy2023history)
@@ -24,8 +24,8 @@
 - [菲律宾人民战争广播](https://t.me/mlmcpp)
 
 ## 网站
--### [**布站**](https://longlivemarxleninmaoism.online/)
-- [激流网](https://jiliuwang.net/)
+### [**布站**](https://longlivemarxleninmaoism.online/)
+[激流网](https://jiliuwang.net/)
 - [和谐历史档案馆](https://banned-historical-archives.github.io)
 - [苏联主义网](www.cccpism.com)
 - [赤辉](https://chihuimlm.wordpress.com)
