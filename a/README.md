@@ -32,7 +32,7 @@
 [泛左联盟](https://www.fanzuoism.com/)<br>
 [共产国际](https://maoism.freeflarum.com/)<br>
 [共产之声](https://gongchanzhishen.wordpress.com)<br>
-[国际共产主义思潮 (GGS 组织)<br> ](https://zh.internationalism.org)<br>
+[国际共产主义思潮 (GGS 组织)](https://zh.internationalism.org)<br>
 [国际红色通讯](https://irn.red)<br>
 [红军旗网站](www.mzdbl.cn)<br>
 [红军旗网站](www.mzdbl.cn)<br>
