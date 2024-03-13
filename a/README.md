@@ -1,7 +1,7 @@
 # 学习资料
 
 ## Telegram
-### [**马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)<br>
+### [**马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)
 [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)<br>
 [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)<br>
 [马列毛主义与革命左翼 国际共运](https://t.me/statelesscommunism)<br>
