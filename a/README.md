@@ -1,7 +1,8 @@
 # 学习资料
 
 ## Telegram
-- [**马列毛主义与革命左翼大群**](https://t.me/longlivemarxleninmaoist)
+- **马列毛主义与革命左翼大群**
+- https://t.me/longlivemarxleninmaoist
 - [**革命火炬**](https://t.me/gczy2022)
 - [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
 - [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
@@ -22,17 +23,6 @@
 - [东风-马列毛文献资料库](https://t.me/DFMLMlib)
 
 - [菲律宾人民战争广播](https://t.me/mlmcpp)
-
-革命火炬之热点新闻：
-https://t.me/gczy2023news
-革命火炬之理论历史文章：
-https://t.me/gczy2023history
-革命火炬之资料文件:
-https://t.me/gczy2023document
-主频道 :
-https://t.me/gczy2022
-旧消息，旧资料存档仓库:
-https://t.me/xintianmlmwall
 
 ## 网站
 - [**布站**](https://longlivemarxleninmaoism.online/)
