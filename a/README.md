@@ -5,7 +5,7 @@
   https://t.me/longlivemarxleninmaoist
 - **革命火炬**<br>
   https://t.me/gczy2022
-- [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
+### [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
 - [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
 - [马列毛主义与革命左翼 国际共运](https://t.me/statelesscommunism)
 - [马列毛主义与革命左翼艺术馆](https://t.me/leftart)
