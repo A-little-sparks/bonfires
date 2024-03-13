@@ -2,7 +2,7 @@
 
 ## Telegram
 - **马列毛主义与革命左翼大群**
-- https://t.me/longlivemarxleninmaoist
+  https://t.me/longlivemarxleninmaoist
 - [**革命火炬**](https://t.me/gczy2022)
 - [马列毛主义与革命左翼 时事评论](https://t.me/eventstracing)
 - [马列毛主义与革命左翼图书馆](https://t.me/taipingtianguo)
